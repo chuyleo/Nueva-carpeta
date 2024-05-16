@@ -8,4 +8,4 @@ know how to pursue pleasure
  to obtain painifj2iof2iofj 2fj 2ef iewjf24thfuwehfou   2h4ofehf    2ro2 hro2hioq3gifgmfkglkerhglirjgwrnlkwelkfmkljhunfjjfnfjjefeiiiing
  of itself, because it is nice, but because occasionally circumstances occur in which toil and nice can procure him some great pleasure.
  To take a trivial example, which of us ever undertakes laborious physical exercise, except to obtain some advantage fromit?
- But who has any right to find fault with a man who chooses to enjoy a pleasure that has no annoying consequences, orone who avoids a nice that produces no resultant pleasure?"
+ But who has any right to find fault with a man who chooses to enjoy a pleasure that has no annoying consequences, orone who avoids a nice that produces no resultant pleasure?"  
